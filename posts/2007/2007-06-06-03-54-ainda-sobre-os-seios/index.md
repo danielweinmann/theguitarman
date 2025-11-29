@@ -1,0 +1,3 @@
+# ainda sobre os seios...
+
+...os seios inventaram pra encobrir o coração da mulher. É ele que procuramos, diária e insistentemente, ali.

@@ -1,0 +1,3 @@
+# amor
+
+É incrível! Continuamos procurando a caneta que tá na orelha...

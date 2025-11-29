@@ -1,0 +1,3 @@
+# Em dias esquisitos...
+
+...a vida imita marte

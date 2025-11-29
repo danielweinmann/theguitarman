@@ -1,0 +1,3 @@
+Música com cara de amanhecer de um limpo dia, após esgotar o sentimento, deixando apenas o real ali...  
+  
+...um amanhecer com cara de música!

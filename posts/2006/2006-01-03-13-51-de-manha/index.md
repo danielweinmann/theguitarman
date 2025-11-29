@@ -1,0 +1,3 @@
+# de manhã...
+
+...apanha a esmo, sem esmero, o vestido verde-esmeralda e vai

@@ -1,0 +1,3 @@
+# divagação
+
+Ah, o dia em que o nós vai desatar teus nós...
